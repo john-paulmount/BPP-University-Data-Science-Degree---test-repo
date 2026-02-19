@@ -5,7 +5,7 @@ I am an experienced  BI and Analytics manager with 20 Years in financial service
 
 ## Education
 Business and Quality Management Degree - Nottingham Trent Univeristy
-Data Science degree  - BPP Univeristy -  ongoing
+Data Science degree  - BPP University -  ongoing
 
 ## Projects
 
